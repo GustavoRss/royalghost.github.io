@@ -1,1 +1,1 @@
-# royalghostak22.github.io
+# royal-ghost.github.io
